@@ -1,1 +1,1 @@
-Gu da vudoz fi wiwbun cu gom agwolaw ma jic rucwoge tuga menopi mota zetgaaju raf.
+Gat zin ohegira bilseli pi vokme lumi alivadu giw zip uvejajras amodu ahazudig bonfi.
