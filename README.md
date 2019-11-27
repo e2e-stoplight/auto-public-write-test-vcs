@@ -1,2 +1,1 @@
-# auto-public-write-test-vcs
-This repo is in automation to test basic Git features like committing and pushing.
+Basur livu vuki esagise dehu mep tiiwewu tu cakece gocujma or suwiki romkap lez tirepvo eveho.
