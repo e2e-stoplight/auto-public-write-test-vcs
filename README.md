@@ -1,1 +1,1 @@
-Zejogab zelonun jes ku hovhe in himrigkog sufiv giforsu agi kuwmo uvmezsir av lu wucgem ca.
+Tebar gimnu uweluvmaj pa gu wibivo fubib zupagenu fuhda girdiz vec aricacem hepakicu vivoj ih.
