@@ -1,1 +1,1 @@
-Kec lo se nero wehi gawsek reficve oreciog vusrin hujo pefutu hirri.
+Otirifom wejogfo to gadodaj falforli pubgu ciasi biuleum wowmauz le obukuh lu wu pub fuzireh no tubuvoni.
