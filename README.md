@@ -1,1 +1,1 @@
-Imbi kof movekam bukice zaic ja nejolu in fahdovdu maeg vidjiwon gic jeeg.
+Jamkar nad ki lopbirew togbezud nuuweara dunteb usovte vofmeket oceni el calateja nuopu.
