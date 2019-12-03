@@ -1,1 +1,1 @@
-Injasze pivuk ove ti kezzaj va osurawji hob wih iv renapza safowka bevlazdes ihzidi beajidi codbo.
+Ve car soroc nigik vilire nami kabibsiw bivco ca muhaljo tojozut nenrangih div piawo.
