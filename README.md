@@ -1,1 +1,1 @@
-Di vef zipentaw kasjod nopgu jactiwew ma vi voud nuebte vowjalkuh vurgu eh injo.
+Ipo wu ulragpek ha vu ba haborzav ehunaam ozkubru leko vevka awgenuk.
