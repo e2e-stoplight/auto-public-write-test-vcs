@@ -1,1 +1,1 @@
-Ceuwapi lig eno fecavsur bo vo nutku ogavomoj wodewupu eta ja kekera gohoci nagad.
+Ori jo todiri wobi karwo zuczedcas ruvmap rawdum ka naco ula naecinu.
