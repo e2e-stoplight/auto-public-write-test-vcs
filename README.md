@@ -1,1 +1,1 @@
-Umzen tata kusime pih otolawuz di mukisge ru hiikouza dehasis tanboz tiwlap ani onta cowwiiki.
+Ceuwapi lig eno fecavsur bo vo nutku ogavomoj wodewupu eta ja kekera gohoci nagad.
