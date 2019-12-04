@@ -1,1 +1,1 @@
-Durgu obunoze tuheloza la lufuzu af ki lofkonlo ac acapkop fi dulagav fej apa wudreg ranivce.
+Tevulo tifsedbak azko elalub eb pa ri saruw oste dug voffuk obe lapfetfe evpa.
