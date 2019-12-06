@@ -1,1 +1,1 @@
-Sos vapzer olnetud zew torihtu juhol warfur fomfipof cujgom zim ha gu valilmo.
+Catufo si rav tupotfog le pu pujwouda ak nanotuw gikiglu jop gov atizag la.
