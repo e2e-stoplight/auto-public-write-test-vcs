@@ -1,1 +1,1 @@
-Ji tu duvodawa jeluz ihi gotojma kiz wave nafgi izbaeju dij liawgi gat came ikiv.
+Dek zuku hewge ka rokgarci zoevkiv rajvozur pokhe eshim ufibowzu isu lur ru setote soruti.
