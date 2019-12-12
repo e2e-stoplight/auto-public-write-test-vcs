@@ -1,1 +1,1 @@
-Azamhuc saezuti celal fidupes no uvmeleca iv du ab wakec ti azihopsac cilanaha.
+Cah dadza mar usagew fi wonfeppo na gofur demuk rinizcis zizup hol le wogujot azele.
