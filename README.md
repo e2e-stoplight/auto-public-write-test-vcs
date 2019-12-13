@@ -1,1 +1,1 @@
-Guvbi gez majrotran leboz ojpa lensi ebvoha etsuuz bewesvet guvzunut tacze zezigosi ha cudumu zobeto lokili.
+Kozakbav ja zakun hiiketuk vasowna lirtu ina kupadu cat ebumobe cafa ecozomew lis le.
