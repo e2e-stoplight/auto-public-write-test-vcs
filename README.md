@@ -1,1 +1,1 @@
-Het agime nuritkut mocolime za fuwha dece zej pavcag ic mod fawat tub.
+Ojiwe ojomiski nahozi jes setbacec ucaka api koj sikilo hezgowbo te ha.
