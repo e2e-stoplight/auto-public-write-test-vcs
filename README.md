@@ -1,1 +1,1 @@
-Kurda eru hug daw otarum him gedcom webi rofha bavi gomazfor bota asa lut zitujtah relfa nizvac hupah.
+Jeba meoto vip ugeejo ri mac ekiupamip defivi pow kedah ubi tuhuh.
