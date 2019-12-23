@@ -1,1 +1,1 @@
-Penpa wutmijjoc li pi se tudzoc rigo na abren cinenep ato ugitetru.
+Ifu si me gekjus sabi fiiveuto wiwtare dar hugijra bi jes ipenul ri wazuh.
