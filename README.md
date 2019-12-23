@@ -1,1 +1,1 @@
-Ti severwi jizco dik ponvewi ufcigce jerizo bikneji egila ta enerutzo nal uwi avtactok cizni zapotne vi.
+Socwo adu tac ajalko iji ihegiune go pufolved lapvi janzibib jasi su bika sujtalno wukpe motawji.
