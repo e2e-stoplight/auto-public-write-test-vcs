@@ -1,1 +1,1 @@
-Efeeg nevo rebbiw bi uckapu foatca ta le ori vaf uz ejkokwom mifwep mis kit jisemli filcelel.
+Ni oganol pi hi begosa onusci liznodap jidfum usebo damicok awtalci buf ocaja hobda.
