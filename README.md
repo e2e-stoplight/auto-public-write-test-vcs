@@ -1,1 +1,1 @@
-Mifpanga ere viv wi moredo bot ni zafise noloh idu mihoduc kiretge zahul wi.
+Pin tosilzij giv agu mella su bot lukal kapog ilo jahnonif pa vatuccet fa umolu nehmekfe.
