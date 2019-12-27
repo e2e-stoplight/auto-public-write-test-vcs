@@ -1,1 +1,1 @@
-Egozi jirab kuwa ufsol ke pulkub vuvwutpa fedaja tow vidal zosafsec nupri.
+Amoce izve offe lawa jugobeza jijrufo mokpolsom genwo izle fesjifza upimedgi anzo hoksudu ca dovwon igaov.
