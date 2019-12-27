@@ -1,1 +1,1 @@
-Vi bazilik cip mi juz gi hejsulat jedta epumuola pumhed vo iccobad.
+Zufwu lop cewpu godhofsal nesniso sel vomic eba kinafo le wapu fizo ovlukuf.
