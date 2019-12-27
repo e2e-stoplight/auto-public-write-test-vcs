@@ -1,1 +1,1 @@
-Agi zarbaif hi fosofo masfuhte ri wofvembak mapre dakasumif huzpu sovlad veljew dirwudamo kiz uwkoda.
+Zeb sunpirla nu guv wuv ta lub leoru jam hotel nu ruvas tubop enhalner ig idoibiha.
