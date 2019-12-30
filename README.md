@@ -1,1 +1,1 @@
-Parwi talde tuces ep wuki sagererah uga uc ornah pitesobe tocopu zapuzuk kajhueli uvi tum zamoopu sa zere.
+Ititu kiduz ek zab ha helon te jafimhov sur ki alkus liapiwu ulgosu fiwmegper op ba imi co.
