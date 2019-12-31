@@ -1,1 +1,1 @@
-Gotecawu wef capokzat curzo mesortop soc oco pu woovzes kuzel ojbekis icu.
+Timge vegjofe dobparnu nurdos sagobibo heke ge zus bo wak zo pe pu ni ga ala eru.
