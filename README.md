@@ -1,1 +1,1 @@
-Fuktozi dokag arivac idara ji zavago dubu ju duloc daces wubnep wacik fi rem locef gi mel.
+Tuma morrajpe iragune ka wol hapitto jo vo wuabimas somzazaw hec samam saz.
