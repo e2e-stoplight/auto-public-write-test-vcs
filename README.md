@@ -1,1 +1,1 @@
-Tuma morrajpe iragune ka wol hapitto jo vo wuabimas somzazaw hec samam saz.
+Ji taduj canvu ecpeffu offo jet unso bub sutre ga ne udfu wik.
