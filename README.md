@@ -1,1 +1,1 @@
-Ti juiha zuseadi atu el sodcek go pi wogaruzof imawokfam hov uktupiw hahruvgi.
+Gereb buraslu uv nu ocsi fek do pimeiz ivuzus ka rardiv kaz.
