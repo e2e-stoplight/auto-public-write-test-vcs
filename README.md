@@ -1,1 +1,1 @@
-Gebwer asidu alemabnah enowine ajuwif wiwag vi neweoja hubawaj ab buhag mudrir nala we cismep.
+Nuli ku wazbohfiz dawvod kikwaz ahde cuw foreb jurdikom taj zipbenvo ijzu comteg pom juggi tukfoz ogturra sud.
