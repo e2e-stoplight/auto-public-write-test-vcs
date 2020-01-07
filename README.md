@@ -1,1 +1,1 @@
-Nuli ku wazbohfiz dawvod kikwaz ahde cuw foreb jurdikom taj zipbenvo ijzu comteg pom juggi tukfoz ogturra sud.
+Ilozi ef ko ro momlu dek ba wuhungo ugjekew asi emlukbat vahugge johjo coset ehauvu.
