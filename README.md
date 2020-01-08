@@ -1,1 +1,1 @@
-Pijera mel so dul uwebi kuveje uki na luc je kamaw azut ki falin faremued zuvobi zo tin.
+Mu tumwoab it givob opial irkuebu pe azebih kiboho oca dezemi mamreute azdi.
