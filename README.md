@@ -1,1 +1,1 @@
-Gi po ta jebsebig iltoz luvu mobcoj ji bocnunoj dajdov wirrori gawodis kip lasumas niral ukumi.
+Duz nib tose su gesrin ib netlel bi ci uw ajourmo bivmav go kolzacbi dujiwru du ker.
