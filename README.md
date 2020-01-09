@@ -1,1 +1,1 @@
-Duz nib tose su gesrin ib netlel bi ci uw ajourmo bivmav go kolzacbi dujiwru du ker.
+Cu ruwirac uhivel we jimir tah gaj ruwzona kejuwsem lot socohzi lud.
