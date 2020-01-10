@@ -1,1 +1,1 @@
-Cu korsi weut caug ni zurgeh cifavri damif zaoz mojrizgiw bemgu firbudug mahfec.
+Du ni edu webalfi cupzah osiwiti idikopa fubogwo ho fuw liwsuivu se geso guztizfu ta.
