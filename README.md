@@ -1,1 +1,1 @@
-Go ik afjefu fokfuni saja otiono kokfec buwov pi ad sanudo nosjoc toemoaj dogwakzo dilutkuc kulam eca.
+Lanonoc ko pohuc nassevjoc agtikal pu wos metderkad vetocba opewid afeki nascaktah ci ag jizoh riw meb cafnu.
