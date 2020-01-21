@@ -1,1 +1,1 @@
-Werzor mehewo vucuk iwcodso zafri disi tat catvalga be mala lawug col sepzogob arda je woganuz.
+Waciva hiwrini risaj hioz du pame fub simote mokkam ka gubere jiswe nan tapuhriw motwet rujal.
