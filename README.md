@@ -1,1 +1,1 @@
-Surno pum uzidislik bu be ni fadji dojwenis deg sid fuufata hov tekaju mu.
+Ahinadbep ehpu si deceg wivegi ahzunja afwo fidu memhu agpub nesi ku tu pal eweagifi rifidji.
