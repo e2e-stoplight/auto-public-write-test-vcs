@@ -1,1 +1,1 @@
-Ga nebsupil gamavo ti nid bozu uvace t ra hibbu do limuw jebo mirke.
+Po oji ma rafnimeh ifu sivih tu nazeuk im wuku fav oz ga boz tusi.
