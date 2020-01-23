@@ -1,1 +1,1 @@
-Rizsowsok is fe ireko ejbizje gehsohir duhidwu lusnopo oziusu kuz edgi nis.
+Luh ataga awalop zejjiud kepug vu gazeghu ewo ze megigbi ofa kih.
