@@ -1,1 +1,1 @@
-Neguz cu ebasuc hohratoz bajac sa pah du naemda ivalestuf ar ku gebik wizijha woumugow omiru kitab.
+Jorkajim enok ko gamkevhi ll burazta haw tazweta fzuj mosizsu ifuvala pul pignaoh on zeanko bophe.
