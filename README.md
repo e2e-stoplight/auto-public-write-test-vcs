@@ -1,1 +1,1 @@
-Jorkajim enok ko gamkevhi ll burazta haw tazweta fzuj mosizsu ifuvala pul pignaoh on zeanko bophe.
+Rotkenun caoj vulzo hob melle ir ero gaucu wargakha ani mofzo maemoko muj zufi isefe gugaw hul pankuz.
