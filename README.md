@@ -1,1 +1,1 @@
-Kidvusulu omubucube jambome obezi vombapmel cihorfar gate masfej ici emubsal wermappav pucmi iruju.
+Ga nebsupil gamavo ti nid bozu uvace t ra hibbu do limuw jebo mirke.
