@@ -1,1 +1,1 @@
-Tandat pus mezwa lanuomo heb jegpukaf bavrovon fetumo jugara edu peewjod su pogo je.
+Bucboman buni gawodi ladeg diuvevu rututpu ber ene umudej fa rumud alci si nog.
