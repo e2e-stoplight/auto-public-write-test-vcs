@@ -1,1 +1,1 @@
-Ata hirib bioji avek ha evidab cokdupab awuferi vo fenrad bucewa kujmastav kof sawbo su jinuk.
+Itofi un wadele tokbi le ome lotmebac vovarke irmotnad susjuju isig barvuf zo lalam eta wuzipwif neod.
