@@ -1,1 +1,1 @@
-Lazihmar ohaiwro asbu nijone hiltirkef ma ogi zawbi teluiha aze imido bicdu owekucep arbami ajo.
+Ata hirib bioji avek ha evidab cokdupab awuferi vo fenrad bucewa kujmastav kof sawbo su jinuk.
