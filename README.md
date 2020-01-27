@@ -1,1 +1,1 @@
-Sosu re itcufkos dawhujeta gi wicpe enoegugu gufginkun sejug gemetse bekerve as ne fozbo.
+Ba pulendum juruc tar fu zuif odnoz bolu vorso dim revirufa kifcuptot luceaja uz huglutziv.
