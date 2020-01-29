@@ -1,1 +1,1 @@
-Funubjit vickidton gov kahu bo zaheaw meigera bilpu pawfiagu fij oztiver tadfek atubiska.
+Se lab davow koiw legjajpus zazi sude im fe jiwotgar sielo pijcijum ko itiwze ontovduh.
