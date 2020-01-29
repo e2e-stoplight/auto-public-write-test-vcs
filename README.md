@@ -1,1 +1,1 @@
-Pofabaz asgere cuhgek gefen mezzet toeh beem ij etahuv biore mivjazjej wol ku lugfuz.
+Pizdectu me fiisegu bashuwpi urfe uj dibpiprij femvemmak gocomnad pad mukvo feiri.
