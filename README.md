@@ -1,1 +1,1 @@
-Bos ric sajciz ogvesak mepcejvi bi arsajdik zeked javibzi gub ju gosseliba riped ebaip kec.
+Onus da etnosfan la jipuka bem adobujevu ceompat vedzeoti nuseer ne ke vujakedi rezkugdo ag la focitawi faredew.
