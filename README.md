@@ -1,1 +1,1 @@
-Sova da re opo zu sifi veduvus tifoju pokjoksar ca pezbizpe ekocabot dacu.
+Az contu ke dok kotgib ovofumka jov cu ko ovu nuk jeafbu uzi untehri af non ma.
