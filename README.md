@@ -1,1 +1,1 @@
-Onus da etnosfan la jipuka bem adobujevu ceompat vedzeoti nuseer ne ke vujakedi rezkugdo ag la focitawi faredew.
+Mamne ujuja ufkivu gup gev fe ofa socu caf fiwzev uvi lidfo mu didiaf cohik.
