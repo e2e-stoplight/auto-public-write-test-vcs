@@ -1,1 +1,1 @@
-Vaja mejmoreg uhrofo wi ha okmojhes vu ujjeeve lud osu bennos meple petiri.
+Kosu da giw pal tuptahanu worom ji sede ajjouw tohtal zowo lagvidvob mum.
