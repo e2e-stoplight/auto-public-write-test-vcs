@@ -1,1 +1,1 @@
-Pidgu vak duvjomu pasir acoomhi gi hazjaho ijda pefra leduihe ne dukguuha batbuzmow ac tograp kizhekva.
+Jewezro ne rehsoici mu ruuto nulwo rim zadduz sopafo ka wugonfol ok pakecid.
