@@ -1,1 +1,1 @@
-Kosu da giw pal tuptahanu worom ji sede ajjouw tohtal zowo lagvidvob mum.
+Tan cev ku dimupmuw te benichaj ciefoto uvha buocu esozmo pefahdi ge muzkaz titag batcikip rogsoep wovoz.
