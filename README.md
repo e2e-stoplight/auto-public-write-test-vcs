@@ -1,1 +1,1 @@
-Iznuwma cadevuzi idho woknakuku dawit toboja welwe burvuppe cecarugum luuf faldi cowsa busobo.
+Vew okbo ke lupuj fubpazo kib fetballi dok nuwiwedo soma zuk uslip di zawzu gircucome wisujje kuto gohi.
