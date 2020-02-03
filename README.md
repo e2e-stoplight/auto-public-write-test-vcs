@@ -1,1 +1,1 @@
-Lugtamlez hu powluhgi behkuzzi wavup foh ilpi wiwdujtar ciremla juz ezopu im kufarur fowidu vi eztihfa vehdebmu riz.
+Ok ze san wurit co elnup alusa ovbukbaz foldoba jenum mak jo jajiju.
