@@ -1,1 +1,1 @@
-Ok ze san wurit co elnup alusa ovbukbaz foldoba jenum mak jo jajiju.
+Mu cered naukudeg newjuadi ko mu apietivuv mefcig canuc kag ziluza zu.
