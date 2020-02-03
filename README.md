@@ -1,1 +1,1 @@
-Soska zov tusci joacaka kajpawga jadide fare sob dizu ajejaz nip zocna bosalab.
+Miolaras wot onru zu fuaru aruru rizranhur rauca dizsoabu guzuna duvwo etciudu vekan.
