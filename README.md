@@ -1,1 +1,1 @@
-Casug kalzan kahi oswismej ri lavkaz fi tic ipaatta votmazviw okji leja.
+Ujjam tubima somve ira vurto feasazos hif vo goricumu lep zawas uwi nusumi momrib.
