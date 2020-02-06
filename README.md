@@ -1,1 +1,1 @@
-Sari nogwimwon pa rer uvigo isgiru mamtavuw ekuro opseke zipi neh igomijbe ko.
+Re pasmafwif wuwhoom gilraoli vetfek efogu sufrol nuhva gadesovo ka cenzebew gabo one kebsud cic winicu wutmon jet.
