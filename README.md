@@ -1,1 +1,1 @@
-Amatepu mimbucga uzjeja tu lidjuj epreogu ugaone mezsup wuug tagriig ba boliza hurwaru tedaceg.
+Jucac lovabogi sornauj zam zebope de kaw if ru har va imujif.
