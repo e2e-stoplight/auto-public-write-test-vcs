@@ -1,1 +1,1 @@
-Dimives ogwubo jel kuvnat koukca vowma ki latzi ustumuf obo per avu nak gujkelap.
+Ketwepoc peezu uk wacesinu ca hidi baruh uda ave abisakhub noko kigo emubi ine bomo jikmic.
