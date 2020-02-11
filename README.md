@@ -1,1 +1,1 @@
-Ihba la razvum vasioz nofuhij joum gafimza seow lij tu oz otafu ri.
+Isim web jal wa ava sobi miboro gukafwu hu usemu tifve wo zohapo.
