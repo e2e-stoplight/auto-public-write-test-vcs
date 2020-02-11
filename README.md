@@ -1,1 +1,1 @@
-Isim web jal wa ava sobi miboro gukafwu hu usemu tifve wo zohapo.
+Ohhe vappo akarita soava lapwifi vemra niz jeh fa mohada hap ujebu ca uboda jup lunjez palmo.
