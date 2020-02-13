@@ -1,1 +1,1 @@
-Ojcomho uvohum vi dez uhufom ub kauta afaan ma hugewudo puirumo guma zumru vakkut.
+Ge zuammuh benupa zaj hirup reahifab ili walof poka vikov terbese dubekiw pi ru.
