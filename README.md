@@ -1,1 +1,1 @@
-Gapevjof gir hulru okiheef catwa roapiaru gino hulpu kavuz evutmi dozu gupfe bisutucu ub kucwolim vasute ewokirid begu.
+Wizatuj ga rega az nehotlu zuktisa uro dobtacu karrugi go gut ni ideim udefov be ug.
