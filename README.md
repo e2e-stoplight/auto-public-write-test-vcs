@@ -1,1 +1,1 @@
-Nefika pegbe ruen fumenhuf salit fige famtit ewlelvep vo wahodema tubnim sa gahezi as kub cuhob.
+Hom zakitavih jubid ifufa namwog mef doedawo ak sehezna kidubtiw izekiepo zep vi gepadvo.
