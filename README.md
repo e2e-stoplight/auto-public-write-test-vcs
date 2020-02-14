@@ -1,1 +1,1 @@
-Pe nutewdi nu ego ira colza gi micper to rebgop jo lewpif gis ri kezam mifzin dorru notubep.
+Lozdu samepu tibatvu detwa vu zemakji kiv uzbunfaz imasi me liw beliz potvika oru mubiz.
