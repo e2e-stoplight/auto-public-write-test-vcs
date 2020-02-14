@@ -1,1 +1,1 @@
-Lozdu samepu tibatvu detwa vu zemakji kiv uzbunfaz imasi me liw beliz potvika oru mubiz.
+Ac jizgovkez ebheeg om gawaeb wawtobo gabuv tahfur nak pof osisori vew sedopazo rohme eca foz.
