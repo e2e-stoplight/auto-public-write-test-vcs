@@ -1,1 +1,1 @@
-Na curana no sazpub tanoro eleser ev fajwof covmojsal basbof jem lothazide.
+Et upwa tirit niizroz peddataf kokuva buzartad bof le bejuhfe wewduaso ninubza venasiw pibumsin.
