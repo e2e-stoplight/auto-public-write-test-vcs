@@ -1,1 +1,1 @@
-Atma id zituko damtima hitvi kukdus esduv sel ca hiru ofaapa okoaw beco nopu gegojzi.
+Acuan so zurzan tiradomof fibin za cuko jep vipnuotu kot ki curoj rut geflerkow.
