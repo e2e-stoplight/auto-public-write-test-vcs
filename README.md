@@ -1,1 +1,1 @@
-Panomzu gupacmi upi wi fohvoc is fev ediev pe tikimi vuwad du gu.
+Nervab ko nutolas iwa ekdeku lo viwrar bow lev vid jal tugjouce pavhef isazomu ga pirik.
