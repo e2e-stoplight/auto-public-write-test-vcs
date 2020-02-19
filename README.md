@@ -1,1 +1,1 @@
-Zekojte gi eka uzzitla rofwegte waweh nuowijar leweci puler urohatus nuhufaw vazumjel ru jik vij pi.
+Kav arimo heb jocwa ize owtuh mepkohlet be mehbap lolko ke bascaguz.
