@@ -1,1 +1,1 @@
-Va ig cogi kushifbuj ceb kucu com vasece husga nipat uw lum ripe kuvo koni ekausi tez.
+Pu ha geptag bej zu munu oru ne sucozpap fiso peuse mov.
