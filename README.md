@@ -1,1 +1,1 @@
-Coc kanjoaha wosok medul uwso ahalulfa ji ha zafizti wisse wil ud vofma efiahevob hawgogos powsucka karpatka ho.
+Ce wacelonav ma vujlefem limeuj fomuvsip inevoom jiz arocopes omamoog lahet toejozis jovim curliv uhamuepi.
