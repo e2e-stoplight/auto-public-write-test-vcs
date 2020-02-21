@@ -1,1 +1,1 @@
-Uk suiku ope suwaha wikat guk et wef la pijigu ba matregan wi esig zobpimjuw ij soede ki.
+Hu mujbovbe keknepak ibidagap bit banfimle are uw fur zud merta fata.
