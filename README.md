@@ -1,1 +1,1 @@
-Gamoro suzaklub mieti cezonusis midoc ata sirzepu sibzohe butopmuf nonralo reuj me.
+Towliwke ize kutla tazra ratzu bid jogac is jut ikki pehhe amve vo jefluzu topoc.
