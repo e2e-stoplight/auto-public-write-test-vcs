@@ -1,1 +1,1 @@
-Cuf nu agaotsi na je mouna baupov cebkuz ca nuz viteca onu imkadhec nim mewvadwa himnuz ki acose.
+Dizubowus cu dat gev ih rozav remuj ko he biovici tucuha ros fongadet.
