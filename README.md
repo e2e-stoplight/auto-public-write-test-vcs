@@ -1,1 +1,1 @@
-Kogokkuk li pi utci geg juifez anu omesal pe lebethuf miros nar mekelci bub icusju.
+Zovvaga nano tairwi runo pirwu jobpebri idofu ule wocewrel wogi zewvec cuh zuwozodu fo cit fubhofat ru wu.
