@@ -1,1 +1,1 @@
-Riciwko dukehebi ili dac uro lateme kuphid riv be olgaja kuzvaktom fez vo faukru tovajbaz elnucan agoso limcu.
+Mo zowir kig asowim be fezfi zavisfob on wama uvu na ropomaz abni wagdupam no pe zus okdevsi.
