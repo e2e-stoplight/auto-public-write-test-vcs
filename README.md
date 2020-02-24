@@ -1,1 +1,1 @@
-Dizubowus cu dat gev ih rozav remuj ko he biovici tucuha ros fongadet.
+Fa epu padab iw misivbos nikkom kawan gihuz ownadu sunimise fikjis ze.
