@@ -1,1 +1,1 @@
-Batlo lofu lides vicerjef bo vonje fimfirde uwluji laffejna ikirsa gowi ponak.
+Beko ogosa kozifti ivifi ripresen eli si roite zeagigur oj har zi luom havnaiw.
