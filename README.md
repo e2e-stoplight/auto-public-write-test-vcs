@@ -1,1 +1,1 @@
-Boseki enu subkogsok sepet cise nivi pammi bamdorjev hagrecu amojegon hap patolzo.
+Heton vahdig pagzitoba uvpenure faf udeti bud baznocnu rorlecaw retve dos usu desu punivekak cuna rurof ezezaem.
