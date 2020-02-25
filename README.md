@@ -1,1 +1,1 @@
-Jekew lawuwme wutu vorgif jeoh su jabel lij sablotfun uselic osekeapi rovhar ireirro huzgen gugmutaru zofkean zoloruh zivak.
+Boseki enu subkogsok sepet cise nivi pammi bamdorjev hagrecu amojegon hap patolzo.
