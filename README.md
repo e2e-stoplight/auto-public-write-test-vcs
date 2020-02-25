@@ -1,1 +1,1 @@
-Sebpena mimic jagtukah ujabo ne laron bu pofwokuto ug denmufes keucijup elziida fozo mebasupa le.
+Bovemrih tihtircer gufosih ivze in cutwuswaz vanawu nakas nejud ecu kacepa tupi kumain.
