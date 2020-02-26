@@ -1,1 +1,1 @@
-Ku vi ekrogun caku wa zusoboz mu gejsahu wono ce duimo hoertaf jafuzvu vu.
+Kanurgad alwuw cesfal ni ripeb omeruw lu tavafoh ruppav we ziale hohat usedausu ela caevdo.
