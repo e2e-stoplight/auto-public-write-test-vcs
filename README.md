@@ -1,1 +1,1 @@
-Ju rera mu popomu vif cipulag tem boodtin livkici sefu pic ato dufizobo go iz baiz gewab.
+Ku vi ekrogun caku wa zusoboz mu gejsahu wono ce duimo hoertaf jafuzvu vu.
