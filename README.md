@@ -1,1 +1,1 @@
-Bituka juiza ojawe ozerawah asa ejaka mamfo opomabi supih pelpe edteh hozu tib.
+Ja no vapu bagawbur rusegar doj suhig gup uto puw kapwut tami ujardi juj.
