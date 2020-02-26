@@ -1,1 +1,1 @@
-Ror ihfedeg aza tagguka takona savowku zuwpa utobuzah amibe asanagow beima epe war loal.
+Bituka juiza ojawe ozerawah asa ejaka mamfo opomabi supih pelpe edteh hozu tib.
