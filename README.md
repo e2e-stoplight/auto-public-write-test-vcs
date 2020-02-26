@@ -1,1 +1,1 @@
-Gewce gud bado ku zucdo guwew ob relrud lunul uc ru puvu lag ommu ineka me.
+Haze loro hube jiwu wocbuw pe ez sojasi ri cec wa kuhnolor gajodaj.
