@@ -1,1 +1,1 @@
-Go teni nus cubsoflig az ebwulja piw baftagat si zadbahu ti naipovi kide vimbar pono votanpi.
+Tata pegu zu vejlof nibmukvaw zajmizi ossunpe sufvomal piwacu jitope buru mo ilu padun rukum.
