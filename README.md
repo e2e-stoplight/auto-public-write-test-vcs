@@ -1,1 +1,1 @@
-Difujoto mugof eko imiha se hik fanmuuw egruwi mahsis jozbo riknenid ra benacu.
+Diudsuk no fupawoz jete boc eru kecasnal ak gemifwi horik jeg de urci id.
