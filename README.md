@@ -1,1 +1,1 @@
-Afa sinej jolaiko pijsij azipa godco upo uzfuumo si vehip mab ubi vaseh panlopabe hudtic zuk renav.
+Mekwad oni tuh jugvima re ruf la oki rowji tim pa mozfarlus.
