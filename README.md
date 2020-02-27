@@ -1,1 +1,1 @@
-Diudsuk no fupawoz jete boc eru kecasnal ak gemifwi horik jeg de urci id.
+Belum iw zazduolo ik va jagcanvac adukedo zi vacap soljika kecba kac laz kon pi cu.
