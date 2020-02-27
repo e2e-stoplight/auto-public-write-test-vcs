@@ -1,1 +1,1 @@
-Let hitufuz supices poevi motu naw dok wi if puj maclulo nolase vicokez ofulge gowahu gabap.
+Agasaava mokada ugu gep ki wu fis sam leti sujigcek lajum ug wo tiktivmun runbah.
