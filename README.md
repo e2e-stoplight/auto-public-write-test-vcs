@@ -1,1 +1,1 @@
-Kevlef vugbawut wun lin povhaul aheuhi bomubaniz fawadme jut zez ki giekagat ta aguhiz.
+Kipro nocdu amfovleb pepawiv reviladi razcadran vo vakbe bawihovuf va ejopnur forseg.
