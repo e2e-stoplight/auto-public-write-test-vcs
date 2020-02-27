@@ -1,1 +1,1 @@
-Mekwad oni tuh jugvima re ruf la oki rowji tim pa mozfarlus.
+Sorsa davzu rivir zabgu cupki owanuze ki zewso geiseral riv pub pecnig ifmamwo gim bakwipo fabakru.
