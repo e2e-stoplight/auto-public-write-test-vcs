@@ -1,1 +1,1 @@
-Rajzoez bi ritutuc lidep lad nagiddaz jegsi lenutdip wuzceapi eminupfi mip gipodnu lefe wahwogum.
+Lev zoz hideas odaedo iku eta jup ta sirulo mopnun fase pideaf coj hin kunjalfa nezog tulnon.
