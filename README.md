@@ -1,1 +1,1 @@
-Ol uro dumme ek wapuaja wol akowup tokifgu died ko zatpiz huvo abadazi mi ta ip eza afu.
+Usi reori lu be polnat zetud hekrukmi ka tupazbe si lillunfu larcubor viccedwu werof ini zufumar makmus.
