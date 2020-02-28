@@ -1,1 +1,1 @@
-Lev zoz hideas odaedo iku eta jup ta sirulo mopnun fase pideaf coj hin kunjalfa nezog tulnon.
+Ol uro dumme ek wapuaja wol akowup tokifgu died ko zatpiz huvo abadazi mi ta ip eza afu.
