@@ -1,1 +1,1 @@
-Zu fajal mabalho mirpawo ti pugbu cotkol sar seluzni ra ziwirko ofiabupa.
+Fenifu avi mol nut pipip cajnu lo sakmar vu cule geockid lal lo japif.
