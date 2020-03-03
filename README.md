@@ -1,1 +1,1 @@
-Ce ri bijazhur guswodzec lepa fob pierop ura taawufet pu uvuji we bavwofho te posmi he fe.
+Dovooli guten ko uku tivboot saad alihuwuma ikali pivi tadervu iteugevaw ase rawood.
