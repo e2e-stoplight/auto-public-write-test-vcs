@@ -1,1 +1,1 @@
-Safta zasluet supi asuv silla voemi tot ejohokha kew pi fu jin.
+Zu fajal mabalho mirpawo ti pugbu cotkol sar seluzni ra ziwirko ofiabupa.
