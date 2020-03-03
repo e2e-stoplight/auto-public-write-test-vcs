@@ -1,1 +1,1 @@
-Fenifu avi mol nut pipip cajnu lo sakmar vu cule geockid lal lo japif.
+Kahazo gopu filcijga zujla unacid ewo igauluru omi zakofa usutec va kofe vakni duaz.
