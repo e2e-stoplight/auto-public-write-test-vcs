@@ -1,1 +1,1 @@
-Mo ac tuk jighekub fe wa jo adbow si vala firofcog ku fi.
+Samjak duh imipu tehec dowucaf dagorog ga zer deku du aleruw amnat.
