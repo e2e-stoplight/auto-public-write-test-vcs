@@ -1,1 +1,1 @@
-Lurzohab gigmuglo heg tannebtin vuod tozje pemec ek cekricon pac misziniho pud fiul kawu higim puw.
+Hu ivi vufuz zok gan rewsi wupjab fejeum cizamhel sejjif ihase noncuc po tovvivnu ki zoj mu.
