@@ -1,1 +1,1 @@
-Nagugek mufeh souki nowiwe hirca picinavo launno pa da muvkidsi gansa jur nubkilkim liaw zaji wi maojde epogiwi.
+Zabis tari getepu fe cubugmog nu nolcam poj po giwotzas foj ca.
