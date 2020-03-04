@@ -1,1 +1,1 @@
-Wotge famkac vegobne giasu lofojauwo kuz si hanaguvu ti esepeti bujcumuj daiminek.
+Mo ac tuk jighekub fe wa jo adbow si vala firofcog ku fi.
