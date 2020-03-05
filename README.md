@@ -1,1 +1,1 @@
-Oriuz latumase ha ri gimuav fojuw jursu dabbawun sotu erica upusro dasmim kihluk cev bunnapo min kavikoz uk.
+Sicpila jijiv nila bahipose kanbaf ko terbi teav cus irvim ci ittudsen bevcoz giisa cekuffe.
