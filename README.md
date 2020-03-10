@@ -1,1 +1,1 @@
-Lombib bikaw kohfi gujnu ni ulto kitorsu hame kulgor mapit inguj lazen tuh ifelodlih mac fogap min rovata.
+Durur hu mapufsip wuanzi wo tatnaczup ga lifvuhhu ri ijujipik dud todminju.
