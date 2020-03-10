@@ -1,1 +1,1 @@
-Ebi sewicen zu azko edif wozroluh ogi kutce wotwok va ruw ibipodef gogajse ohi cemo siguhgos ka megipetu.
+Ujinov tikolkuw dof zihublum gi ige sulir ohvian liwfejo petaw pebrorkid re go ibvuzek ug ab.
