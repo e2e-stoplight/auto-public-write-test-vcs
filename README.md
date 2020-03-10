@@ -1,1 +1,1 @@
-Durur hu mapufsip wuanzi wo tatnaczup ga lifvuhhu ri ijujipik dud todminju.
+Mere pocafka fibikkun majsa labuj gen pap bon wa dub zarifil hu demoje uho adifuvez wa uriuliho zetedom.
