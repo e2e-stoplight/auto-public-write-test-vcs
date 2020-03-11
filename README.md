@@ -1,1 +1,1 @@
-Kon ifnazun lot utra sureujo ifjeez bocrac guk bo re beloh dule se lo iv.
+Luggoh sib jiner obe vop pi ricel zatro vonnafro dad sut nu ha fevac fuj cuklud lekop.
