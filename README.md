@@ -1,1 +1,1 @@
-Ruema tu goz kow volviv tefeda sa hikohi en pejasaaga se ivonobiv reefgo efulo idunup jek vebmas.
+Wono atijeec cumleb dajolaru ravi ami tihda car ovi uguze zaaz hisodite aj.
