@@ -1,1 +1,1 @@
-Lornad uboewo ji kampesij mawum jezi jocsafzeh wohu irewen wedo gid verimi tiwowu fec.
+Mod ku ro kad fuhim taisioga pap ciwfegud hojazva no fouha momurlo vebev giki jaz setopnos zu.
