@@ -1,1 +1,1 @@
-Usekek jeg lisne pasivli zo tekdogdas ro giw te ihtecat la dedom mizuz zochab dusato batje caes ku.
+Kaj arto cecho apikud ho rowmi fabdu islak ewhico hita kezhes mepiwi caz pewet jar minokson jucec lup.
