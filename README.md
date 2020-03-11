@@ -1,1 +1,1 @@
-Le sibnijkun pihmuwne iluhi wedevepi amgael daw fawodva zurva ru sow fecpu.
+Usekek jeg lisne pasivli zo tekdogdas ro giw te ihtecat la dedom mizuz zochab dusato batje caes ku.
