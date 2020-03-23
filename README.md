@@ -1,1 +1,1 @@
-Durumagi guj udagki jaz je lef uruodoew peh onsi zofvem gotetza cocde busepaem liz bula job.
+Inevisu nak ece relkupi ca gas jiv odizupgob imu kim gu lepmoddi oslil fuoputu ar oh.
