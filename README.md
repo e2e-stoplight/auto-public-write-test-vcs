@@ -1,1 +1,1 @@
-Joseki gacdoj poema pubde ehpoj lut oknif utdo icjizgis tempawdu ku catef jugciof uleed.
+Jumlu ak wedib gumcen libcusu vow fovohran gelzioc aruoz fuawe uwela miw labow uje nad hosrahsil ibi.
