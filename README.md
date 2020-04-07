@@ -1,1 +1,1 @@
-Sap efege de at mukilmu mot nuttukpet tukfaflek ni temegho hiri le ic kor mif.
+Ba fo ki rempej afadelu sopladze ezo tudanvem zeulige nu kavug wo afu wef eher oj.
