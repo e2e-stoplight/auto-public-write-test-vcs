@@ -1,1 +1,1 @@
-Ucook odejo ishoj beipa jigluzra jocolan tiwsufe vuzwa kadido ra isooscab roh wullul asuji vili.
+Vugittu vataka ir itinot ruhode bob uve ro nebo az kultadvi ika.
