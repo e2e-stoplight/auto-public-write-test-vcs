@@ -1,1 +1,1 @@
-Zu jokruh mitojzo hobuba ebumofud heh gad foz fupnupi bi va tawna.
+Ji vuzikbe muzwi vezem go cukakale naz or va utab wirnek son.
