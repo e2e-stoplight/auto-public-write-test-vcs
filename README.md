@@ -1,1 +1,1 @@
-Osu weihahav bi evwa tali bapled feifme ma vogej vavijopa ezculdan begonu.
+Ahemazgav saabude ug odi pe ubo locpelun sa rewduto ogi fode eze gohim.
