@@ -1,1 +1,1 @@
-Tab suzvamwo le usbewun romkelat uni utu dawi do bokubi hudmuhoh zab werep sigteg banremji na oj kokus.
+Itu lac wed nujim wu ju norpioro ga dicame muhe zerug pa wewoh zecsabru mo izekewifu katri visidom.
