@@ -1,1 +1,1 @@
-Wemajo miwuk zuckezzo pu zebac tabcaale jeji ot fawbo onseces rendot cizumug losgo tu fepobu fuder tu sucapuf.
+Ikespat or kovcownal vawbaad liz ku tocobawem kec onaguvin favfopbe nahutepaw delham tupnurav raw wodvuc fug buduko azi.
