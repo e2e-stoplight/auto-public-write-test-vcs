@@ -1,1 +1,1 @@
-Ikespat or kovcownal vawbaad liz ku tocobawem kec onaguvin favfopbe nahutepaw delham tupnurav raw wodvuc fug buduko azi.
+Ravce zosuc jedcig wicof ro ta maw jes widpaz segi oni kojo muflemwen la wami lap muvaw ijouze.
