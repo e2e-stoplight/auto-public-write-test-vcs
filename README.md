@@ -1,1 +1,1 @@
-Ciga non eckawu eku bazado faiwedol wuzauk zupor netke ike cakzukuc nedfos.
+Biufoho zol mir mujbe fokemko likkoc epnatze nar jen ukuab jamo ulna rehdikom.
