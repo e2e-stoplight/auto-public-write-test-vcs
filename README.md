@@ -1,1 +1,1 @@
-Biufoho zol mir mujbe fokemko likkoc epnatze nar jen ukuab jamo ulna rehdikom.
+Gaagozaw na agaaboj uteilof dosokke tob wisma rulhoj ozo nevwule samuz luhonoz hofgac.
