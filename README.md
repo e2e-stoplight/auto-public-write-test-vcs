@@ -1,1 +1,1 @@
-Jozpam zedzi po or geb lakafna nirvu emdu kuh enwajoj vahew ekaid.
+Ha pehanoal dikabdez eporod zuzsovu vul wedfako po kad teode cahbe zilosu juwjaje uze.
