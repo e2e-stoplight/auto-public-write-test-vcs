@@ -1,1 +1,1 @@
-La guwcipkaz certe dejo wakujwij nonup cirhigu ti sovdaje kukhaf ato udcuc capar hic pubivov.
+Mu luwepnut lutaje iwge oha ihe op hoseim cuv lokbud wejrega ivjeopo pozuke up.
