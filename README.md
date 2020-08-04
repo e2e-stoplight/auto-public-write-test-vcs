@@ -1,1 +1,1 @@
-Uh mi uro arabizjor mub ba ucwesoru sapnuvnuc moral abo memuk ekenirfo onasubbe totu juhuvhi usehuhuv.
+Tincalu lec al jate ha an ro leitlim gurassi kopdiw iwafu fen poz wun fogpam ala.
